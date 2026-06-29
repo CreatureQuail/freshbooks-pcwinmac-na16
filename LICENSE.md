@@ -1,4 +1,4 @@
-# 
+# Nativo FreshBooks predefinições para Mac OS | Gratuito FreshBooks predefinições para PC Windows. Com edição de PDF e suporte para autônomos — otimizado para máximo desempenho em cada plataforma.
 
 
 
